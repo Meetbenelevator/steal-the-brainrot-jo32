@@ -1,4 +1,4 @@
-#  
+#  steal the brainrot base Scripts secure offers the most advanced steal the brainrot base Script, with god mode and custom skins. Perfect for
 
 
 
